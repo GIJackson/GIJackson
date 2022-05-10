@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GIJackson
+- 👋 Hi, I’m Guill!
 - 👀 I’m interested in video games, fantasy novels, and physical training!
 - 🌱 I’m currently learning how to further my education through the mysteries of coding.
 - 💞️ I’m looking to collaborate on many projects with like minded inviduals. 
